@@ -33,8 +33,8 @@ Optimizing your website to rank higher and drive more organic traffic.
 
 We'd love to hear from you! Reach out for inquiries, collaborations, or to get started on your project:
 
-- **Email:** [support@webnect.com](mailto:support@webnect.com)
-- **Website:** [www.webnect.com](https://www.webnect.com)
+- **Email:** [support@webnect.com](mailto:thewebnect1605@gmail.com)
+- **Website:** [www.webnect.com]([https:/com](https://thewebnect1605.netlify.app/))
 
 ---
 
